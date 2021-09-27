@@ -1,7 +1,7 @@
 # Job-hunter
 ## 秋招果上果！！知识笔记！！(含泪整理)
 
-C++求职指南！！！
+C++求职指南！！！(**语雀**文档)
 
 https://www.yuque.com/docs/share/847c8b6a-ffd1-423d-b758-3f2dc8047f8c?#（密码：fal7） 《秋招果上果》
 
