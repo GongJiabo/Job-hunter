@@ -3,11 +3,11 @@
 
 C++求职指南！！！(**语雀**文档)
 
-https://www.yuque.com/docs/share/847c8b6a-ffd1-423d-b758-3f2dc8047f8c?#（密码：fal7） 《秋招果上果》
+https://www.yuque.com/books/share/fdda1387-9c2b-4bf3-89bf-9d3cdc8a7a19?# 《秋招果上果》
 
-https://www.yuque.com/docs/share/847c8b6a-ffd1-423d-b758-3f2dc8047f8c?#（密码：fal7） 《秋招果上果》
+https://www.yuque.com/books/share/fdda1387-9c2b-4bf3-89bf-9d3cdc8a7a19?# 《秋招果上果》
 
-https://www.yuque.com/docs/share/847c8b6a-ffd1-423d-b758-3f2dc8047f8c?#（密码：fal7） 《秋招果上果》
+https://www.yuque.com/books/share/fdda1387-9c2b-4bf3-89bf-9d3cdc8a7a19?# 《秋招果上果》
 
 
 
